@@ -1,1 +1,1 @@
-# mindartedu.github.io
+# MindArt Education and Training
